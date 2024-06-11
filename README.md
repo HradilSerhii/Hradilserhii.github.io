@@ -1,1 +1,0 @@
-# HradilSerhii.github.io
